@@ -1,5 +1,5 @@
 ## Hi there 👋
-hold on theres a fly on my screen
+i made this account just for that gddt thing theres really nothing else here
 
 <!--
 **paradoxflux2/paradoxflux2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
